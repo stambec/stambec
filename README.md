@@ -1,13 +1,12 @@
-- @Stambec here!
+- @Stambec here
 - Based in Italy,
-- 
 - I do stuff
 -
 -
 -
 -
 -
-- Signed, Diego
+- SS
 
 
 
